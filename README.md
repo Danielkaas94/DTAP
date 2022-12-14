@@ -13,9 +13,12 @@
 
 <hr/>
 
+<div align="center">
 
 #Acsauhaya
 #AlohaMahalo
 #BizErkek
 #GirdYourLoins
 #HatersGonnaHate
+
+</div>
