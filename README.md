@@ -13,7 +13,13 @@
 <hr/>
 
 <p align="center">
-  <img alt="Terence Kemp McKenna - GOING TO THE GRAVE WITHOUT HAVING A PSYCHEDELIC EXPERIENCE, IS LIKE GOING TO THE GRAVE WITHOUT HAVING SEX - IT MEANS THAT YOU NEVER FIGURED OUT WHAT IT WAS ALL ABOUT" width="430" src="https://github.com/Danielkaas94/DTAP/blob/main/Img/MemeLord/TerenceKempMcKenna.jpg?raw=true">
+  <img alt="Terence Kemp McKenna - GOING TO THE GRAVE WITHOUT HAVING A PSYCHEDELIC EXPERIENCE, IS LIKE GOING TO THE GRAVE WITHOUT HAVING SEX - IT MEANS THAT YOU NEVER FIGURED OUT WHAT IT WAS ALL ABOUT" width="430" src="https://github.com/Danielkaas94/DTAP/blob/main/Img/Ahead_Curve.jpg?raw=true">
+</p>
+
+<hr/>
+
+<p align="center">
+  <img alt="💚🖤 I'M NOT A MONSTER, I'M JUST AHEAD OF THE CURVE 💚🖤" width="430" src="https://github.com/Danielkaas94/DTAP/blob/main/Img/MemeLord/TerenceKempMcKenna.jpg?raw=true">
 </p>
 
 <hr/>
