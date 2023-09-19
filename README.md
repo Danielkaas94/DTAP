@@ -46,3 +46,10 @@
 [![Jeff Van Dyck - Amen 🎵🎶](https://img.youtube.com/vi/WNFxocGFb2A/0.jpg)](https://youtu.be/WNFxocGFb2A)
 
 </div>
+
+
+[Join CodeWars with me! 👨‍💻](https://codewars.com/r/hGyTsQ)
+
+<p>
+  <img alt="CodeWars Badge" src="https://www.codewars.com/users/Danielkaas94/badges/large">
+</p>
