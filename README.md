@@ -118,6 +118,116 @@ Let's keep the list going. What would you add? I'll start:
 
 ---
 
+<div align="center">
+
+<details>
+
+<summary>Work-life balance is a myth. There's just life</summary>
+
+</div>
+
+
+> Credits: Dan Murray-Serter
+
+
+Work-life balance is a myth. There's just life. 5 ways to take back control of it at work:
+
+𝗪𝗵𝘆?
+
+Burnout.
+
+When work overpowers life, you burnout.
+
+Burnout leads to:
+
+- Lower productivity
+- Lack of creativity
+- Decreased happiness
+- Poor health
+
+Simply put, no balance = no good.
+
+How?
+
+### 𝟭) 𝗦𝗲𝘁 𝗯𝗼𝘂𝗻𝗱𝗮𝗿𝗶𝗲𝘀.
+
+Don't let work creep into your personal time.
+
+Set clear expectations for yourself and your boss/team.
+
+- No checking emails after work hours
+- No taking home work
+- Dedicate time for personal activities
+
+Protecting your time is the first step towards balance.
+
+### 𝟮) 𝗣𝗿𝗶𝗼𝗿𝗶𝘁𝗶𝘇𝗲 𝘁𝗮𝘀𝗸𝘀.
+
+Not all tasks are created equal.
+
+Ask yourself:
+
+- Does this task have a deadline?
+- Will it have a significant impact?
+- Can someone else do it?
+
+Prioritize based on importance and urgency.
+
+### 𝟯) 𝗧𝗮𝗸𝗲 𝗯𝗿𝗲𝗮𝗸𝘀.
+
+Breaks give your mind and body a chance to recharge.
+
+Take small breaks throughout the day to:
+
+- Stretch
+- Walk
+- Meditate
+- Listen to music
+
+Take long breaks to:
+
+- Take a vacation
+- Spend time with loved ones
+- Learn something new
+
+### 𝟰) 𝗟𝗲𝗮𝗿𝗻 𝘁𝗼 𝘀𝗮𝘆 𝗻𝗼.
+
+Saying yes to everything leads to an overwhelmed life.
+
+Learn to say no to:
+
+- Nonessential tasks
+- Demands on your time
+- Activities that don't align with your values/goals
+
+### 𝟱) 𝗖𝗿𝗲𝗮𝘁𝗲 𝗮 𝗿𝗼𝘂𝘁𝗶𝗻𝗲.
+
+Consistency is key.
+
+Create a routine that works for you:
+
+- Wake up at the same time every day
+- Dedicate time for work and personal activities
+- End work at the same time every day
+- Set aside time for self-care
+
+A routine helps you create structure and carve out time for what's important.
+
+𝗕𝗮𝗹𝗮𝗻𝗰𝗲 𝗶𝘀 𝗰𝗿𝘂𝗰𝗶𝗮𝗹 𝗳𝗼𝗿 𝗮 𝗳𝘂𝗹𝗳𝗶𝗹𝗹𝗶𝗻𝗴 𝗹𝗶𝗳𝗲.
+
+Protect your time, prioritize tasks, take breaks, learn to say no, and create a routine.
+
+Reassess regularly and adjust as needed.
+
+Life is too short to trade away balance.
+
+
+
+</details>
+
+
+---
+
 [Join CodeWars with me! 👨‍💻](https://codewars.com/r/hGyTsQ)
 
 <p>
