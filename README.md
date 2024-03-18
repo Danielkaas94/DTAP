@@ -118,13 +118,10 @@ Let's keep the list going. What would you add? I'll start:
 
 ---
 
-<div align="center">
 
 <details>
 
 <summary>Work-life balance is a myth. There's just life</summary>
-
-</div>
 
 
 > Credits: Dan Murray-Serter
