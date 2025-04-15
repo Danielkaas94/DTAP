@@ -101,6 +101,41 @@ I’m human. I did what I could to stay sane in an insane environment. And you k
 
 ---
 ---
+
+
+### 🤡🎭 What Fake Tough Guys and Dirty Kitchens Taught Me 🎭🤡
+
+Peace out, post-it wars and constant nonsense. I’ll admit it—I played my part.  
+When you’re surrounded by chaos, respect goes out the window—and so does your patience. 📝🎶
+
+But let me be real about one thing that wore me down fast:  
+**The “hardcore” hallway crew.**  
+Fully grown guys, mid-20s, acting like they were straight outta Compton, Los Angeles... but you just *know* their moms still pack their Christmas stockings.
+
+Slang that didn’t even make sense.  
+Bass-heavy nonsense echoing down the hallway.  
+Big talk, bad hygiene.  
+It wasn’t intimidating—it was embarrassing.
+
+And yet somehow, *I* was the one walking around on eggshells.
+
+So yeah, I snapped. Left some post-its. Turned up my own music.  
+Passive-aggressive? Maybe. But when the peaceful route doesn’t work, survival mode kicks in.
+
+💡 Looking back, here’s what I’ve learned:  
+You can’t reason with people who are too busy performing.  
+And you shouldn’t have to fight for peace in your own home.
+
+Now, I’ve moved on.  
+Clean space. Clear head. Quieter nights.
+
+I’m done with dorm dramas and wannabe alpha energy.  
+I’m building something better now.
+
+
+
+---
+---
 ---
 
 
