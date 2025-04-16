@@ -166,6 +166,54 @@ And I’ve learned that sometimes peace doesn’t show up on its own—you have 
 If you’re stuck somewhere that drains you:  
 **You’re allowed to leave. You’re allowed to want more.**
 
+---
+---
+
+<div align="center">
+
+<details><summary>👉Click Here to know more about Wiggers👈</summary>
+
+<div align="center">
+    <img alt="Wigger - Now that a word I haven't heard in a long time" width="340" src="https://i.imgflip.com/1cgwbh.jpg">
+    <img alt="Missing Fingers - Lost in inbreeding" width="340" src="https://www.memesmonkey.com/images/memesmonkey/bc/bcbfcc9189405ad81a5c359c82d94a84.jpeg">
+    <img alt="Wiggers - Hated by black and white people" width="340" src="https://www.memesmonkey.com/images/memesmonkey/93/93330e3239b754f9b8435e431126a5dc.jpeg">
+    <img alt="Wiggers - The finest vagina a pack of cigs can buy" width="340" src="https://cdn.ebaumsworld.com/picture/KingBallstheIII/Wiggers.png">
+    <img alt="Wiggers - Even gayer than emo kids" width="340" src="https://cdn.ebaumsworld.com/mediaFiles/picture/427434/715947.png">
+    <img alt="asdasd" width="340" src="https://i509.photobucket.com/albums/s332/hoofz/wigger.png">
+
+
+
+
+<img alt="I can tell your baby is going to be a wigger" width="340" src="https://media.someecards.com/someecards/usercards/90de9a0976aafc9e44fd99639f04f5e7b1.png">
+<img alt="" width="340" src="">
+<img alt="" width="340" src="https://i.kym-cdn.com/photos/images/original/000/378/345/72d.jpg">
+<img alt="Wiggerz - White niggaz fo' life with brains in size of a peanut" width="350" src="https://www.owned.lv/images/227.jpg">
+<img alt="Wiggers - Because the suburbs be hood as shit, yo." width="340" src="https://i.pinimg.com/736x/13/cc/42/13cc4235e626196fe7f0f9a332e294f8--real-people-sarcasm.jpg">
+<img alt="Wiggers - Wiggers Everywhere" width="340" src="https://www.memecreator.org/static/images/memes/5183800.jpg">
+<img alt="WIGGERSTHIS Is what happens when you dont beat your children" width="340" src="https://loginportal123.funnyjunk.com/pictures/Wiggers_6e84d2_735595.jpg">
+
+
+<img alt="Not sure if they are 14 years old wiggers or 30 years old lesbians" width="340" src="https://images7.memedroid.com/images/UPLOADED315/6074a9a834155.jpeg">
+<img alt="Wigger - Because its not good enough to just be an idiot" width="340" src="https://bigmemes123.funnyjunk.com/pictures/Wigger_1dfcf0_417109.png">
+<img alt="WIGGER Being gangster makes me feel cool....' love Black people" width="340" src="https://www.memesmonkey.com/images/memesmonkey/7d/7d9ac92a9d5602e1e639e5ae86396791.jpeg">
+
+<img alt="UPPER MIDLiE CLASS" width="340" src="https://i.pinimg.com/originals/a8/cd/f8/a8cdf8837beb7faac5e0306dc177dd62.jpg">
+<img alt="MOMS JEWELRY - Now That's Gansta" width="340" src="https://bigmemes123.funnyjunk.com/pictures/Poor_ed19c8_451531.jpg">
+<img alt="Wiggers - Bringing Down Wiite Society Since the 1950s" width="340" src="https://cdn.ebaumsworld.com/picture/ThatPolishGuy/Wiggers.png">
+
+<img alt="Virgin 'Gangster' VS Chadnik" width="1200" src="https://i.redd.it/tefcd823fok21.png">
+
+<img alt="Gangsta Seizure" width="340" src="https://cdn.ebaumsworld.com/mediaFiles/picture/374924/886402.jpg">
+<img alt="WIGGERS - cuz da streetz be harsh" width="340" src="https://hosting.photobucket.com/albums/oo173/Hayabusadoc/Funny%20Posters/wigger.jpg">
+<img alt="What hood are they from?'" width="340" src="https://images3.memedroid.com/images/UPLOADED380/5c37ddd2e3616.jpeg">
+
+
+
+</div>
+
+</details>
+
+</div >
 
 ---
 ---
