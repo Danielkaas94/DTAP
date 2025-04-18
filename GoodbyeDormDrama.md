@@ -265,15 +265,15 @@ I did my time. 1½ years in the chaos cell. Paroled at last. May the next inmate
 #### 🟦 1. The Calm Truth 🌫️🧘‍♂️🧼
 
 For the last half-year, I barely stayed in the dorm—only dropping in for a few days at a time.  
-I found more peace crashing at my parents’ than enduring the tension in that hallway.
+I found more peace crashing at my parents’ than enduring the tension in that hallway. 😬
 
 Still, I tried to do something decent. I bought two kilos of onions for the shared kitchen—**they were thrown out the next day**.  
 I donated bottles of dish soap—**gone in a few days**, either dumped in the sink or used like water.
 
-For context? A single bottle lasts *me* for months.  
+For context? A single bottle lasts *me* for months. 🆒  
 But when 15 people treat common space like a dumping ground, even soap disappears like magic.
 
-It’s not about the money.  
+It’s not about the money. 💸  
 It’s about learning this truth the hard way:  
 **Some people don’t know how to value what’s freely given.**
 
@@ -283,21 +283,21 @@ It’s about learning this truth the hard way:
 
 I tried to be helpful. That was my first mistake.  
 Dropped off two kilos of onions in the shared kitchen—woke up the next day to find them in the trash.  
-Apparently, feeding 15 people is a crime if you’re not loud about it.
+Apparently, feeding 15 people is a crime if you’re not loud about it. 🫷🛑🫸
 
 Then came the soap.  
-Donated a couple of bottles like some naïve supply fairy. A few days later?  
+Donated a couple of bottles like some naïve supply fairy. A few days later? 🧚⭐🌟✨  
 Gone.  
 Either dumped down the sink for fun or used like juice concentrate by people who think **"dish soap"** means *just pour until it feels right*.
 
-You’d think I was trying to hydrate elephants, not clean forks.
+You’d think I was trying to hydrate elephants, not clean forks. 💦🐘🍴🍴
 
 Let me just say:  
-**Trying to bring hygiene to that place was like bringing a feather duster to a house fire.**
+**Trying to bring hygiene to that place was like bringing a feather duster to a house fire.** 🪶🏚️🔥
 
 ---
 
-#### 🔹 3. The Emotional Cut ✂️🧅💔 🧳🌒🕊️
+#### 🟥 3. The Emotional Cut ✂️🧅💔 🧳🌒🕊️
 
 I stopped living there.  
 Not officially—but in spirit. I only visited for a few days at a time, choosing my parents’ guest room over a bed in a dorm that had long stopped feeling like home.
@@ -309,7 +309,7 @@ I donated soap—**emptied within days**, not because it was needed, but because
 You learn things like this slowly.  
 That generosity means nothing to those who take everything for granted.  
 That peace isn't just something you find—  
-**it's something you protect.**
+**it's something you protect.** 🛡️
 
 ---
 ---
