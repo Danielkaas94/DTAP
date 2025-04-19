@@ -171,6 +171,14 @@ If you’re stuck somewhere that drains you:
 
 <div align="center">
 
+***"Your false bravado won't save you from <ins>the consequences of your actions.</ins>"***  
+
+***"I can see your false bravado from a mile away. <ins>You're just a coward.</ins>"***
+
+
+---
+
+
 <details><summary>👉Click Here to know more about Wiggers👈</summary>
 
 <div align="center">
