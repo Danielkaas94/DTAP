@@ -2,11 +2,6 @@
 
 # [DTAP - Decideret Træt Af Pis](https://youtu.be/cu91MMsFQkI)
 
-
-## 💚☘🌱 TONSVIS AF HASH! 🌱☘💚
-[![Tonsvis af hash / Many tons of hash](https://img.youtube.com/vi/lCv8Ao3XGho/0.jpg)](https://youtu.be/lCv8Ao3XGho)
-
-
 </div>
 
 
