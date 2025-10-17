@@ -32,6 +32,34 @@ It is time to find my own place in this world. A place where I can build my own 
 To anyone who has gone through something similar, know that you are not alone. Choosing yourself is not selfish. It is survival.
 
 ---
+---
+
+# Update: The Apology
+
+Hi Dad.
+
+I'm not writing to start another argument. I've been thinking a lot about what happened when I got home from Vietnam, and I can see that I reacted violently. I was sick, exhausted, and emotionally drained after a 36-hour trip. Being met with rejection and humiliation at that point ignited something in me that I could no longer suppress. I apologize for that.
+
+I had really been looking forward to coming home. To see the living room again, to greet you, to hug our dog Santa, to take a hot shower, to use a proper toilet, to sit at my computer, and finally to sleep in my old bedroom. I longed for peace, recognition, and security. Instead, I was met with distrust, anger, and demands that I should have anticipated your wishes without you even saying anything.
+
+But let's be honest. This isn't about a burger. This is about years and years of constantly dominating, controlling, and determining everything. And when someone sets a limit, you get angry, offended, and upset. It’s always been that way, and I’m tired of it. You can call it what you want, but it’s not love, it’s power.
+
+I’ve been the most loyal of your children, and yet I’m the one you talk down to the most.
+
+I’ve forgiven you for many things, including the episode where you tried to pull the steering wheel of my car while I was driving because you were angry that we got out of Ringkøbing a few seconds later because we didn’t take the “shortcut” through the pedestrian zone. It wasn’t just dangerous, it was deeply disturbing. You’d rather risk an accident, maybe even die, than accept coming home five seconds later to your TV and your tobacco. That says everything about how extreme your need for control has become.
+
+If I had brought you a burger after a 36-hour journey, there wouldn’t have been any conflict at all. You could have asked me what the mood was for dinner. Whether it was a burger, a wiener schnitzel or just a beer. Instead, the only response I got on my entire journey from Copenhagen to West Jutland was an “Okay 👍”.
+
+I’m not writing this to hurt you, but to set a boundary. I’m done putting up with being talked to like a child who owes you something. I don’t owe you anything anymore. I’ve paid my dues many times over.
+
+I hope you understand that I’m not writing this out of anger, but out of clarification. I don’t want to be part of your power games anymore. I want peace. If you need to tell yourself that you’re the victim in this, do it. It doesn’t change anything for me anymore.
+
+I take responsibility for my own reaction, but I no longer take responsibility for your reality.
+
+– Daniel
+
+
+---
 
 <img width="610" alt="nasi" src="https://github.com/user-attachments/assets/9d270312-564b-4bc4-bf46-481afcf4154e" />
 
