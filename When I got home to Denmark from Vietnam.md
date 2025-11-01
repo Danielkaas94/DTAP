@@ -8,6 +8,23 @@
 
 [The 5 Stages of a Narcissist’s Breakdown After You Leave](https://www.youtube.com/watch?v=MrHCGmnrUtI)
 
+[Narcissistic Parents: Why They HATE the Scapegoat](https://www.youtube.com/watch?v=ncoA1pObO4k)
+
+---
+
+<div align="center">
+
+# ✝️✝️✝️ 🤍 ✝️✝️✝️
+
+### [4 Undeniable Signs Narcissists are Influenced by Demons](https://www.youtube.com/watch?v=IUQcvrR0XXY)
+
+### [The Prayer That Stops the Narcissist Dead in Their Tracks](https://www.youtube.com/watch?v=pVD1IWLaRTg)
+
+### [20 Secret Ways Narcissists Use Demonic Influence on You](https://www.youtube.com/watch?v=jjvuSeMwyI8)
+
+</div>
+
+
 ---
 
 *Date: 27th September 2025*
