@@ -8,18 +8,22 @@
 
 [The 5 Stages of a Narcissist’s Breakdown After You Leave](https://www.youtube.com/watch?v=MrHCGmnrUtI)
 
+[Narcissistic Parents: Why They HATE the Scapegoat](https://www.youtube.com/watch?v=ncoA1pObO4k)
 
+---
 
+<div align="center">
 
- 
-## AaronClarey - Why 1 in 4 Children Cut Off American Parents
-[![AaronClarey - Why 1 in 4 Children Cut Off American Parents](https://img.youtube.com/vi/WaWDNfFWmv8/hqdefault.jpg)](https://youtu.be/WaWDNfFWmv8)
+# ✝️✝️✝️ 🤍 ✝️✝️✝️
 
+### [4 Undeniable Signs Narcissists are Influenced by Demons](https://www.youtube.com/watch?v=IUQcvrR0XXY)
 
+### [The Prayer That Stops the Narcissist Dead in Their Tracks](https://www.youtube.com/watch?v=pVD1IWLaRTg)
 
-- [Reddit: Anyone else get really uncomfortable sharing their personal life with their parents?](https://www.reddit.com/r/AsianParentStories/comments/1mb9skq/anyone_else_get_really_uncomfortable_sharing/)
-- [Reddit: Does anybody else just can’t share things about them with their parents?](https://www.reddit.com/r/emotionalneglect/comments/ggjt13/does_anybody_else_just_cant_share_things_about/)
-- [Reddit: Randians, how much personal stuff do you share with your parents? Did sharing certain things backfire?](https://www.reddit.com/r/india/comments/8klxzh/randians_how_much_personal_stuff_do_you_share/)
+### [20 Secret Ways Narcissists Use Demonic Influence on You](https://www.youtube.com/watch?v=jjvuSeMwyI8)
+
+</div>
+
 
 ---
 
