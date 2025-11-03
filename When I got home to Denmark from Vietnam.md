@@ -12,6 +12,18 @@
 
 ---
 
+## AaronClarey - Why 1 in 4 Children Cut Off American Parents
+[![AaronClarey - Why 1 in 4 Children Cut Off American Parents](https://img.youtube.com/vi/WaWDNfFWmv8/hqdefault.jpg)](https://youtu.be/WaWDNfFWmv8)
+
+
+
+- [Reddit: Anyone else get really uncomfortable sharing their personal life with their parents?](https://www.reddit.com/r/AsianParentStories/comments/1mb9skq/anyone_else_get_really_uncomfortable_sharing/)
+- [Reddit: Does anybody else just can’t share things about them with their parents?](https://www.reddit.com/r/emotionalneglect/comments/ggjt13/does_anybody_else_just_cant_share_things_about/)
+- [Reddit: Randians, how much personal stuff do you share with your parents? Did sharing certain things backfire?](https://www.reddit.com/r/india/comments/8klxzh/randians_how_much_personal_stuff_do_you_share/)
+
+
+---
+
 <div align="center">
 
 # ✝️✝️✝️ 🤍 ✝️✝️✝️
